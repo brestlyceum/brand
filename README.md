@@ -1,0 +1,1 @@
+# Brand assets of P. M. Masherov Lyceum of the Brest Region
